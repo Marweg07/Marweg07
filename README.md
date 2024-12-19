@@ -30,6 +30,7 @@
 ## You want to connect or ask me something?
 I'm always a fan of new **friends** | **connections** | **critique** |  **help**
 
+<img src=https://raw.githubusercontent.com/Marweg07/Marweg07/master/instagram.svg height="40em" align="center" alt="Follow me on Instagram" title="Follow me on Instagram"/>
 
 
 <!--
